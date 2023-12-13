@@ -1,5 +1,13 @@
 ### Hi there 👋
 
+I am looking forward to making more friends here!
+
+My interests: AI, gpt, programming, etc.
+
+is now an undergradute in Xiamen University.
+
+Nice to meet you!
+
 <!--
 **sunshine-sutingjun/sunshine-sutingjun** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
